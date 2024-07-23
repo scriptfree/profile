@@ -1,6 +1,6 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Arial&duration=2500&pause=1000&color=00F703&background=000000&center=true&vCenter=true&width=435&lines=FUCK+YOU!;GET+OFF+MY+PROFILE+NIGGA)](https://git.io/typing-svg)
 
-I love kids!
+# I love kids!
 
 <!--
 ISpeakLua/ISpeakLua is a ✨ special ✨ repository because its README.md (this file) appears on your GitHub profile.
