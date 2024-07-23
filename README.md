@@ -1,15 +1,7 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Arial&duration=2500&pause=1000&color=00F703&background=000000&center=true&vCenter=true&width=435&lines=FUCK+YOU!;GET+OFF+MY+PROFILE+NIGGA;Visit+men.com+for+gay+porn;discord.gg%2FThHvvc5sQ8)](https://git.io/typing-svg)
 
-# My hobbies
-
-1. Touching kids
-2. Playing with my balls
-3. Eating dick
-4. Scamming old people
-5. **Men**
-
 <!--
-ISpeakLua/ISpeakLua is a ✨ special ✨ repository because its README.md (this file) appears on your GitHub profile.
+scriptfree/scriptfree is a ✨ special ✨ repository because its README.md (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
 
