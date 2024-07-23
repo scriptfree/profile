@@ -1,5 +1,7 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Arial&duration=2500&pause=1000&color=00F703&background=000000&center=true&vCenter=true&width=435&lines=FUCK+YOU!;GET+OFF+MY+PROFILE+NIGGA;Visit+men.com+for+gay+porn;discord.gg%2FThHvvc5sQ8)](https://git.io/typing-svg)
 
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Arial&duration=2500&pause=750&color=00F703&background=000000&center=true&vCenter=true&width=435&lines=%5BConsole%5D%3A+Welcome+to+my+profile.;%5BConsole%5D%3A+I+make+cool+roblox+scripts.;%5BConsole%5D%3A+Add+me+on+discord+-+nnty.;%5BConsole%5D%3A+discord.gg%2Fzat3eDaZ24)](https://git.io/typing-svg)
+
 <!--
 scriptfree/scriptfree is a ✨ special ✨ repository because its README.md (this file) appears on your GitHub profile.
 
