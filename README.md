@@ -1,5 +1,3 @@
-# profile
-
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=4000&pause=500&color=13F76C&center=true&width=435&lines=%3Edauser;%3Eok;%3Esomething+else;%3Edoing+stuff)](https://git.io/typing-svg)
 
 Just a random programmer idk
